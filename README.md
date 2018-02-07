@@ -1,6 +1,9 @@
 # putaodizhi
-葡萄视频 最新地址
+葡萄视频 最新地址 2018-2-7更新
 
+http://email.putaoshipi.at.yahoo.com.putao88.space
+
+http://email.putaoshipi.at.yahoo.com.putao.webcam
 http://葡萄视频.com
 
 http://email.putaodizhi.at.yahoo.com.putaopa.space
