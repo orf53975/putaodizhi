@@ -1,5 +1,12 @@
 # putaodizhi
 葡萄视频 最新地址 2018-2-7更新
+http://ptsp.space/
+
+http://putaosp.net
+
+http://putaosp.fun
+
+http://putao.webcam
 
 http://email.putaoshipi.at.yahoo.com.putao88.space
 
