@@ -1,6 +1,16 @@
 # putaodizhi
 葡萄视频 最新地址 2018-3-7 更新
 
+http://putaoshipin.at.yahoo.com.putaoporn.club
+
+http://putaoshipin.at.yahoo.com.putaoporn.online
+
+http://putaoshipin.at.yahoo.com.putaoporn.fun
+
+http://putaoshipin.at.yahoo.com.putaoporn.com
+
+http://putaoshipin.at.yahoo.com.putaoporn.us
+
 http://putaoshipin.at.yahoo.com.putao666.club
 
 http://putaoshipin.at.yahoo.com.putao666.site
