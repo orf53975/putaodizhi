@@ -7,8 +7,8 @@ putao888.space
 
 putao588.space
 
-putao01.space
-putaoc.club
+http://putao01.space
+http://putaoc.club
 putao888.club
 putao58.club
 putaou.top
